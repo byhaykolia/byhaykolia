@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @byhaykolia
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ...hggg
 - 💞️ I’m looking to collaborate on ...6
 - 📫 How to reach me ...66
 - 😄 Pronouns: ...626
